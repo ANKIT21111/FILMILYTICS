@@ -19,6 +19,6 @@
   
   3. Cast Highly-Rated Actors: Actors like Mammootty and Vijay Sethupathi, known for their exceptional performances, are highly rated in the industry. Collaborating with them, along with actresses like Taapsee Pannu, could elevate the quality of productions and attract a larger audience.
   
-  4.Global Audience Focus: If RSVP Movies aims to cater to a global audience, focusing on the drama genre is recommended, as it holds universal appeal and is the most popular genre worldwide. This approach will increase the film’s potential for success across international markets.
+  4. Global Audience Focus: If RSVP Movies aims to cater to a global audience, focusing on the drama genre is recommended, as it holds universal appeal and is the most popular genre worldwide. This approach will increase the film’s potential for success across international markets.
 
 ### Overall, the analysis suggests that RSVP Movies should prioritize the drama genre and form strategic collaborations with top-tier production houses and actors to ensure the highest chances of success for their upcoming projects.
