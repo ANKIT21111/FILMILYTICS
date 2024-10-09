@@ -1,2 +1,3 @@
-# RSVP-MOVIES-DATA-ANALYSIS
-As a data analysis process with SQL knowledge, we 've analysed the past three years'(2017,2018,2019) worth of movie dataset for RSVP Movies, an Indian film production company known for its super-hit movies.
+
+
+![RSVP_Movies_official_logo](https://github.com/user-attachments/assets/995ca17f-ac05-4060-94ce-d950bef2c313)
